@@ -89,17 +89,7 @@ Suporte para integração com:
 
 # Contato
 
-📧 **bravas@bravas.ind.br**
-
-### Matriz
-
-📞 (51) 3029-4004
-
-📞 (51) 3029-7001
-
-### Filial São Paulo
-
-📞 (11) 2924-7616
+🌐 [Bravas Tecnologia](https://www.bravas.ind.br)
 
 ### WhatsApp
 
